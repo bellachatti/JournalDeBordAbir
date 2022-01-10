@@ -16,9 +16,12 @@ Premièrement, réfléchir aux aspects suivants:
 * Quel est le message derrière ce projet ou son objectif? 
 
 Écrire une analyse sur le projet. Amenez votre sujet grâce à une brève présentation de l’œuvre. Qui en sont les artistes?  Où est-elle présentée?   
-Un court-métrage très émouvant qui raconte l’histoire d’un adolescent, accro aux jeux vidéo, dont la vie va changer après avoir reçu un cadeau de sa mère. Regardez jusqu’à la fin.
 
-Ce film a reçu plus de 50 prix dans différents festivals.
+Un mystérieux petit garçon (aux faux airs de Petit Prince) récolte des étoiles pour les envoyer à des enfants qui vivent dans des villes grises et monotones. Il éclaire ainsi leur coeur.
+
+« Every Star » est un magnifique court-métrage d’animation réalisé par la talentueuse Yawen Zheng.
+
+« Dans chaque coeur vit un petit garçon et son étoile ».Ce film a reçu plus de 50 prix dans différents festivals.
 
 Official Selection- Northwest Animators Showcase
 Official Selection- Animex Awards 2015
